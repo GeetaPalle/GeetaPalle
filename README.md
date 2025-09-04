@@ -14,7 +14,7 @@
 
 - 📫 How to reach me: **dasarigeeta10@gmail.com**
 
-- 📄 Know about my experiences through: **[My Resume](https://drive.google.com/drive/folders/1VhE5IAhdBDpxM6z2kIG3V5EX2NeYBYn9)**
+- 📄 Know about my experiences through: **[My Resume](https://drive.google.com/drive/folders/1VhE5IAhdBDpxM6z2kIG3V5EX2NeYBYn9/view)**
   
 - ✨ “Turning data into insights, and insights into impact.” ✨
   
