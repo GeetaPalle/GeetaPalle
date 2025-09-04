@@ -10,7 +10,7 @@
   
 - 🚀 Currently seeking **Data Analyst opportunities** to apply my skills in real-world business challenges.
 
-- - 👨‍💻 All of my projects are available at: **[My Portfolio](https://geetapalle.github.io/GeetaPalle/)**
+- 👨‍💻 All of my projects are available at: **[My Portfolio](https://geetapalle.github.io/GeetaPalle/)**
 
 - 📫 How to reach me: **dasarigeeta10@gmail.com**
 
